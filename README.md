@@ -1,2 +1,0 @@
-# study
-Apenas para estudo.
